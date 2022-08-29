@@ -1,0 +1,2 @@
+# kamiyy
+my journey
